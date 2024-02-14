@@ -13,4 +13,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: thandomavi9@gmail.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I know how to braid myself so perfectly
+- I strive for fairness and am committed to adding value to the company through cooperative teamwork.
 

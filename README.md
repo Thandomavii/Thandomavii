@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about my personal interests
 - 📫 How to reach me: thandomavi9@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I knpw how to braid myself so perfectly
+- ⚡ Fun fact: I know how to braid myself so perfectly
 
